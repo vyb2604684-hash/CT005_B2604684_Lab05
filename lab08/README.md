@@ -5,3 +5,4 @@
 ### DANH SÁCH ĐƯỜNG LINK SẢN PHẨM LAB 08:
 1. Fanpage Facebook: https://www.facebook.com/share/1K4AhyauXu/
 2. Nhóm Zalo: https://zalo.me/g/z4w0xl0lotkuskct5eae
+3. Video Youtube: https://youtu.be/jOvBNi4aHjc
